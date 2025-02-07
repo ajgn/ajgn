@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/alberto-gomis-79104042/](https://www.linkedin.com/in/alberto-gomis-79104042/)
 
-- ⚡ Fun fact **Karate and Running are some of my hobbies**
+- ⚡ **Karate and Running are some of my hobbies**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
